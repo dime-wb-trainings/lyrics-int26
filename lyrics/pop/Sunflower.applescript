@@ -1,0 +1,30 @@
+Sunflower
+
+Aye, aye, aye, aye (ooh)
+Ooh, ooh, ooh, ooh-ooh (ooh)
+Aye, aye
+Ooh, ooh, ooh, ooh-ooh
+Needless to say, I keep it in check
+She was a bad, bad, nevertheless (yeah)
+Callin' it quits now, baby, I'm a wreck (wreck)
+Crash at my place, baby, you're a wreck (wreck)
+Needless to say, I'm keeping in check
+She was all bad, bad, nevertheless
+Callin' it quits now, baby, I'm a wreck
+Crash at my place, baby, you're a wreck
+Thinkin' in a bad way, losin' your grip
+Screamin' at my face, baby, don't trip
+Someone took a big L, don't know how that felt
+Lookin' at you sideways, party on tilt
+Ooh-ooh-ooh
+Some things you just can't refuse
+She wanna ride me like a cruise
+And I'm not tryna lose
+Then you're left in the dust
+Unless I stuck by ya
+You're the sunflower
+I think your love would be too much
+Or you'll be left in the dust
+Unless I stuck by ya
+You're the sunflower
+You're the sunflower
